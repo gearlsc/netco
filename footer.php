@@ -1,0 +1,1 @@
+<div style="color: white;">Erica Alvionita (8040140012) & Gea Rulisca Kandora (8040140214) <br>@2017 SMA NEGERI 3 JAMBI. </div>
